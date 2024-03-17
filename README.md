@@ -13,5 +13,5 @@ Looking forward to amazing adventures in the world of programming! 🔥
 Let's code and create awesome things! 💻🚀
 
 Contact Me:
-- Telegram: Telegram Link (https://t.me/Arakcheev_Ruslan)
+- Telegram: https://t.me/Arakcheev_Ruslan
 - Email: arakcheev.ruslan25@gmail.com
