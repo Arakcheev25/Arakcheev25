@@ -4,13 +4,11 @@
 - The IT industry captivates me, and I am eager to explore its various aspects.
 - I have a love for chess and enjoy playing it in my free time.
 - I believe it's time to make my dream come true.
-- My ultimate goal is to work as a Python developer and make a contribution to the world of technology.
+- My main goal is self-realization, achieving peace of mind and improving the world.
 
-Feel free to reach out if you want to connect, collaborate, or chat about anything related to Python or the IT industry. Let's make magic happen together! ✨
+Feel free to reach out if you want to connect, collaborate, or chat about anything related to Python or the IT industry. Let's create together! ✨
 
-Looking forward to amazing adventures in the world of programming! 🔥
-
-Let's code and create awesome things! 💻🚀
+Let's code and create awesome things! 💻🚀🔥
 
 Contact Me:
 - Telegram: https://t.me/Arakcheev_Ruslan
